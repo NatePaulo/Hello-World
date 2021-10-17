@@ -1,3 +1,3 @@
 # Hello-World
-Introduction To Crhpto-Farming
+Introduction To Crypto-Farming
   My Name Is Nathaniel Paulo.
